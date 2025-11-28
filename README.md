@@ -6,3 +6,6 @@
 
 ### Video Entrega 2 (duración 3:50)
 https://www.youtube.com/watch?v=LxbwzLV-yLQ
+
+### Video Entrega Final (duración 3:59)
+https://www.youtube.com/watch?v=r2uPGXuclp4&feature=youtu.be
